@@ -1,1 +1,1 @@
-道长请教我炼丹!
+Embracing AI!
